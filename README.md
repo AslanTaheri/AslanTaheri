@@ -5,7 +5,7 @@
             bringing them closer together excites me, and my curiousity to learn
             and grow in such a fast-paced dynamic environment drives me forward.
 
-📫 Reach me at aslan.taheri@gmail.com or at my [personal wesite](https://taheri.dev
+📫 Reach me at aslan.taheri@gmail.com or at my [personal website](https://taheri.dev
 ) 
 
 
