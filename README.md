@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, my name is Aslan 👋
  As a software engineer with an artistic background, I am passionate
             about solving problems at the intersection of design and
             engineering. Using technology to improve people's experiences and
